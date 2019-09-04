@@ -36,29 +36,25 @@ SEO Specialist courses in Brest, Wide Web, 2017
 **ODO "Eola-design" 1, 2008–present**
 
 Brest, Belarus
-
 Manager
+
 
 **IP Sitnikau 12, 2016–present**
 
 Online store [podium-brest.by](https://podium-brest.by)
-
 Brest, Belarus
-
 Iindividual entrepreneur
 
 
 **Kravira&K, "Zio Pepe" night club, 2008–2010**
 
 Brest, Belarus
-
 Dj
 
 
 **Five Stars, Disco Bar "Planet Rock", 2007–2008**
 
 Brest, Belarus
-
 Dj
 
 
@@ -74,7 +70,6 @@ Dj
 - Versatile
 
 
-
 ### **Special skills**
 
 - Native Russian
@@ -84,7 +79,6 @@ Dj
 - Creative thinking skills
 - Driving License (Category B)
 - Hobbies: modeling, radio engineering, computer technology, DIY, Dj
-
 
 
 ### **References**
