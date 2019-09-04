@@ -42,35 +42,35 @@ I am seeking with a company where I can use my JavaScript programming capabiliti
 
 - **ODO "Eola-design" 1, 2008–present**
 
-        Brest, Belarus
+    Brest, Belarus
 
-        Manager
+    Manager
 
 
 
 - **IP Sitnikau 12, 2016–present**
 
-        Online store [podium-brest.by](https://podium-brest.by)
+    Online store [podium-brest.by](https://podium-brest.by)
 
-        Brest, Belarus
+    Brest, Belarus
 
-        Iindividual entrepreneur
+    Iindividual entrepreneur
 
 
 
 - **Kravira&K, "Zio Pepe" night club, 2008–2010**
 
-        Brest, Belarus
+    Brest, Belarus
 
-        Dj
+    Dj
 
 
 
 - **Five Stars, Disco Bar "Planet Rock", 2007–2008**
 
-        Brest, Belarus
+    Brest, Belarus
 
-        Dj
+    Dj
 
 
 
