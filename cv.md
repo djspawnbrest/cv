@@ -1,6 +1,6 @@
 # **Aliaksandr Sitnikau**
 
-Personal information
+### **Personal information**
 
 | Address: | 11"V" Partyzansky Avenue, apt. 49, Brest, 224028, Belarus |
 | --- | --- |
@@ -12,7 +12,7 @@ Personal information
 
 
 
-Objective
+### **Objective**
 
 I am seeking with a company where I can use my JavaScript programming capabilities.
 
