@@ -4,7 +4,7 @@ Personal information
 
 | Address: | 11"V" Partyzansky Avenue, apt. 49, Brest, 224028, Belarus |
 | --- | --- |
-| Telephone: |   | mobile: +375 29 79-646-79 |
+| Telephone: |   | +375 29 79-646-79 |
 | Email: |   | djspawnbrest@gmail.com |
 | Date of birth: | 19th January 1988 |
 | Nationality: |   | Belarussian |
