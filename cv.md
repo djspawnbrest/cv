@@ -22,25 +22,25 @@ I am seeking with a company where I can use my JavaScript programming capabiliti
 
 ### **Education**
 
-Brest State Polytechnic College, department of Radio engineering, Technician for the design and production of radio-electronic means (2002–2008).
+- Brest State Polytechnic College, department of Radio engineering, Technician for the design and production of radio-electronic means (2002–2008).
 
 
 
 
 ### **Qualifications**
 
-The Rolling Scopes School - RS2019Q1 (JavaScript), 2019 [Certificate (Digital version)](https://app.rs.school/certificate/9pu8mxw2)
+- The Rolling Scopes School - RS2019Q1 (JavaScript), 2019 [Certificate (Digital version)](https://app.rs.school/certificate/9pu8mxw2)
 
-JavaScript development courses in Brest, MyIT school, 2018
+- JavaScript development courses in Brest, MyIT school, 2018
 
-SEO Specialist courses in Brest, Wide Web, 2017
+- SEO Specialist courses in Brest, Wide Web, 2017
 
 
 
 
 ### **Work experience**
 
-**ODO "Eola-design" 1, 2008–present**
+- **ODO "Eola-design" 1, 2008–present**
 
 Brest, Belarus
 
@@ -48,7 +48,7 @@ Manager
 
 
 
-**IP Sitnikau 12, 2016–present**
+- **IP Sitnikau 12, 2016–present**
 
 Online store [podium-brest.by](https://podium-brest.by)
 
@@ -58,7 +58,7 @@ Iindividual entrepreneur
 
 
 
-**Kravira&K, "Zio Pepe" night club, 2008–2010**
+- **Kravira&K, "Zio Pepe" night club, 2008–2010**
 
 Brest, Belarus
 
@@ -66,7 +66,7 @@ Dj
 
 
 
-**Five Stars, Disco Bar "Planet Rock", 2007–2008**
+- **Five Stars, Disco Bar "Planet Rock", 2007–2008**
 
 Brest, Belarus
 
