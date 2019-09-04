@@ -42,9 +42,9 @@ I am seeking with a company where I can use my JavaScript programming capabiliti
 
 - **ODO "Eola-design" 1, 2008–present**
 
-Brest, Belarus
+--  Brest, Belarus
 
-Manager
+--  Manager
 
 
 
