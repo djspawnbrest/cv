@@ -34,50 +34,59 @@ SEO Specialist courses in Brest, Wide Web, 2017
 ### **Work experience**
 
 **ODO "Eola-design" 1, 2008–present**
+
 Brest, Belarus
+
 Manager
 
 **IP Sitnikau 12, 2016–present**
+
 Online store [podium-brest.by](https://podium-brest.by)
+
 Brest, Belarus
+
 Iindividual entrepreneur
 
 
 **Kravira&K, "Zio Pepe" night club, 2008–2010**
+
 Brest, Belarus
+
 Dj
 
 
 **Five Stars, Disco Bar "Planet Rock", 2007–2008**
+
 Brest, Belarus
+
 Dj
 
 
 ### **Personal qualities**
 
-- .Eager to learn
-- .Articulate
-- .Broad-minded
-- .Dependable
-- .Determined
-- .Initiative
-- .Approachable
-- .Versatile
+- Eager to learn
+- Articulate
+- Broad-minded
+- Dependable
+- Determined
+- Initiative
+- Approachable
+- Versatile
 
 
 
 ### **Special skills**
 
-- .Native Russian
-- .English level A2
-- .HTML/CSS knowledge (basic)
-- .Communicative skills/Social skills
-- .Creative thinking skills
-- .Driving License (Category B)
-- .Hobbies: modeling, radio engineering, computer technology, DIY, Dj
+- Native Russian
+- English level A2
+- HTML/CSS knowledge (basic)
+- Communicative skills/Social skills
+- Creative thinking skills
+- Driving License (Category B)
+- Hobbies: modeling, radio engineering, computer technology, DIY, Dj
 
 
 
 ### **References**
 
-Aliaksandr Sitnikau_,_ +375 29 79-646-79, djspawnbrest@gmail.com
+Aliaksandr Sitnikau, +375 29 79-646-79, djspawnbrest@gmail.com
