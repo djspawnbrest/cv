@@ -16,13 +16,15 @@
 
 I am seeking with a company where I can use my JavaScript programming capabilities.
 
-Education
+### **Education**
 
 Brest State Polytechnic College, department of Radio engineering, Technician for the design and production of radio-electronic means (2002–2008).
 
 
 
-Qualifications
+### **Qualifications**
+
+The Rolling Scopes School - RS2019Q1 (JavaScript), 2019 [Certificate (Digital version)](https://app.rs.school/certificate/9pu8mxw2)
 
 JavaScript development courses in Brest, MyIT school, 2018
 
