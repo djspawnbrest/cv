@@ -8,7 +8,7 @@ Personal information
 | Email: | djspawnbrest@gmail.com |
 | Date of birth: | 19th January 1988 |
 | Nationality: | Belarussian |
-| Marital status: | single |
+| Marital status: | married |
 
 
 
